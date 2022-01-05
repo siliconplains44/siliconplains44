@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @siliconplains44
+- 👀 I’m interested in software development, well and nowadays infrastructure as well.
+- 🌱 I’m currently learning everythign I can get my hands on
+- 💞️ I’m looking to collaborate on really hard projects.
+- 📫 How to reach me ... mobile 214-289-2959 (iphone, text or call me)
